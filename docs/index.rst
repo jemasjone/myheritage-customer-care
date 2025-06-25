@@ -44,7 +44,7 @@ The primary way to reach MyHeritage customer care is through the company’s off
 
 1: Visit the Help Center
 _____
-Go to the MyHeritage website and scroll to the bottom of the page. Click on “Help” or “Support.” This will take you to the Help Center, which is full of useful articles that may solve your issue without needing to contact anyone directly.
+Go to the MyHeritage website and scroll to the bottom of the page. "`MyHeritage Customer Support <https://hulutvaccount.com>`_" Click on “Help” or “Support.” This will take you to the Help Center, which is full of useful articles that may solve your issue without needing to contact anyone directly.
 
 2: Use the Search Bar
 _____
